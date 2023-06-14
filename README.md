@@ -1,0 +1,3 @@
+Hello folks! I'm excited to share that I'm currently learning how to create packages from scratch. This is a fascinating process that has already taught me a lot, and I'm excited to continue developing my skills in this area.
+In my daily work, I'm responsible for a wide variety of assurance activities related to SOX compliance. This includes everything from conducting internal audits to managing external audits and making sure that our company is in compliance with all relevant regulations and standards. 
+It's a challenging but incredibly rewarding role, and I'm always learning something new... ✨ 
